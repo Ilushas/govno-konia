@@ -1,0 +1,2 @@
+# govno-konia
+pisika
